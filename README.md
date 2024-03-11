@@ -1,1 +1,1 @@
-fun class proj - uploaded soon!
+fun class proj - uploading soon!
